@@ -3,4 +3,5 @@
 
 Just my first steps into a new world 
 
-The future Andrik is thanking you so much right now. Keep up the great work mate!
+If internet explorer is brave enough to ask you to be your default browser, 
+you're brave enough to ask that girl out.
